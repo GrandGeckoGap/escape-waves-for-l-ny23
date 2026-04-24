@@ -1,4 +1,4 @@
-
+Experience escape waves for lucky blocks like never before with underground escape waves for lucky blocks Script, the #1 Script. Includes instant win
 
 
 
